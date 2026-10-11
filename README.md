@@ -1,4 +1,5 @@
 # NOTE THAT I DO NOT WORK FOR DISCORD NOR DO I REPRESENT THEM.
+# This is outdated by over a year and will be archived soon
 
  
 
